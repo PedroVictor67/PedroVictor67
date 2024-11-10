@@ -1,6 +1,6 @@
 ## Olá **Dalva** 🐴
 
-Esse perfil foi criado no intuito da educação de um aluno, da escola publica paulistãna.
+Esse perfil foi criado no intuito da educação de um aluno, da escola publica paulistâna.
 
 - Estou estudando em uma escola publica no interior de São Paulo.
 
